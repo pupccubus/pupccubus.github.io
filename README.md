@@ -1,2 +1,0 @@
-# pupccubus.github.io
-abc
